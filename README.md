@@ -16,7 +16,7 @@ source-->https://www.bharatwa.com/amazing-facts-sanskrit/
 
 ![](Screenshot_20191004-145333_Sanskrit.jpg)
 
-![](Screenshot_20191005-215556_Sanskrit.jpg)
+![](Screenshot_20191011-150513_Sanskrit.jpg)
 
 ![](Screenshot_20191011-150510_Sanskrit.jpg)
 
