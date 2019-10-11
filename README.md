@@ -13,3 +13,16 @@ Reasons why Sanskrit is crucial for today’s world
 4. In the modern world, we want everything fast and we want it now. To study a language like Sanskrit, one requires calmness of mind, patience and reverence for the language. This ancient science has been ruthlessly plundered, looted and misinterpreted by foreign plunderers who were unable to fathom the greatness of its existence.
 
 source-->https://www.bharatwa.com/amazing-facts-sanskrit/
+
+![](Screenshot_20191004-145333_Sanskrit.jpg)
+
+![](Screenshot_20191005-215556_Sanskrit.jpg)
+
+![](Screenshot_20191011-150510_Sanskrit.jpg)
+
+![](Screenshot_20191011-150517_Sanskrit.jpg)
+
+![](Screenshot_20191011-150520_Sanskrit.jpg)
+
+
+
